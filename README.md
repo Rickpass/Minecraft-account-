@@ -1,10 +1,10 @@
       # Minecraft-account-
-I sent Soon File there user and password. 
+I sent File there user and password. 
 maybe working
 
-
-
-
+10 Account Minecraft Java edition 
+working on any launcher
+enjoy 
 
 
 
